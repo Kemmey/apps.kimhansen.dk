@@ -8,8 +8,6 @@ include_in_header: false
 November 18 2020
 
 # Privacy Policy
-Submissive a when owing much far bawdy thanks impolitely alas overlaid one and this one chuckled darn on more due much misheard amused far far the much purposeful that wildebeest dalmatian and piranha bluebird this and much despite however much sincere nonsensical this paradoxically more.
-
 Kim Hansen built the Caravan Leveler app as a Commercial app. This SERVICE is provided by Kim Hansen and is intended for use as is.
 
 This page is used to inform visitors regarding my policies with the collection, use, and disclosure of Personal Information if anyone decided to use my Service.
